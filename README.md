@@ -13,3 +13,8 @@ Project is live 👉 https://alisha140202.github.io/Interactive_Gaming_Resume_/
 ![Screenshot (2957)](https://github.com/alisha140202/Interactive_Gaming_Resume/assets/102052712/5844f491-8c70-4547-bace-9d4a82104e66)
 ![Screenshot (2960)](https://github.com/alisha140202/Interactive_Gaming_Resume/assets/102052712/1e333bf7-a21a-4f32-807b-bfce9a28dbf4)
 
+![image](https://github.com/alisha140202/Interactive_Gaming_Resume_/assets/102052712/8ff9cc6d-0974-4a87-9327-40daeba28726)
+![image](https://github.com/alisha140202/Interactive_Gaming_Resume_/assets/102052712/7071f57a-00ca-48ea-a581-0bb33487e401)
+![image](https://github.com/alisha140202/Interactive_Gaming_Resume_/assets/102052712/9c93ac2b-138f-4f87-945e-1d7a0a49dbc9)
+![image](https://github.com/alisha140202/Interactive_Gaming_Resume_/assets/102052712/88bc854c-53ed-4fbf-b3b3-4ed377ebf464)
+
